@@ -1,1 +1,1 @@
-# bulsu-amviray-wst-ipt_2025-2026
+wst-ipt_2025-2026
